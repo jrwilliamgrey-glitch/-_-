@@ -9,3 +9,11 @@ some of my art just in case you wanna follow me on tg! https://t.me/william_grey
 and some gays
 
 <img width="797" height="672" alt="image" src="https://github.com/user-attachments/assets/c30973d8-3d16-49b5-9b91-a8a7b679ac78" />
+
+
+
+
+
+
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=jrwilliamgrey-glitch)
