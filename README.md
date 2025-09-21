@@ -1,6 +1,6 @@
 ### (text me on my socials freely if we are friends in PT !!)
 
-<img width="399" height="344" alt="image" src="https://github.com/user-attachments/assets/9da21065-e132-463b-80e1-e56e945cd6f0" /> jeeprs (yes my furrsona is looking at him guys trust!)
+<img width="399" height="344" alt="image" src="https://github.com/user-attachments/assets/9da21065-e132-463b-80e1-e56e945cd6f0" /> jeppers (yes my furrsona is looking at him guys trust!)
 
 some of my art just in case you wanna follow me on tg! https://t.me/william_grey
 
