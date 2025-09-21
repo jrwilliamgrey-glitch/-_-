@@ -1,4 +1,7 @@
 ### (text me on my socials freely if we are friends in PT !!)
+
+<img width="399" height="344" alt="image" src="https://github.com/user-attachments/assets/9da21065-e132-463b-80e1-e56e945cd6f0" /> jeeprs
+
 some of my art just in case you wanna follow me on tg! https://t.me/william_grey
 
 <img width="698" height="578" alt="image" src="https://github.com/user-attachments/assets/258e46b6-05c3-4f84-a5d9-590925854f19" />
